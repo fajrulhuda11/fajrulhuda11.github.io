@@ -1,1 +1,1 @@
-Email publik: fhdfajrul@fhdcoba.github.io
+Email publik: fajrulhuda0478@gmail.com
